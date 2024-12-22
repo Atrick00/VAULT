@@ -1,0 +1,72 @@
+
+- Log #1
+	     ![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdD48RiUdxwecfYo3FYe5TkmKty0Z3_CBzTV4i2jevPXgIWYKCDsygkwCslyTj4DNX10z5xaZh00b0K7rsm5p-wzqj4nK6nc6sT4Jc3v2y9CihkuR1-mMcW3eRBFqxUkcfYHdvxHQ?key=Pf895FV6SR9tGp3Z9zaJPErR)
+    
+
+- Log #2
+	- Two-Party System
+	- A political system where 2 parties dominate politics.
+	- Multi-Party System
+	- A political system where many parties, 3-4 parties dominate politics.
+	- Coalitions
+	- A temporary alliance between political parties/interest groups to take control of the government.
+	- Winner Take All vs. Proportional Representation
+	- Winner Take All: An electoral system in which the candidate with the most votes wins all of the votes.
+	- Proportional Representation: An electoral system where spots in the government are distributed based on the percentage of votes each party won.
+	- Critical Election
+	- An election that signifies a major shift in political allegiance or issues.
+	- Party Realignment
+	- A lasting shift in party loyalty and voter behavior, where one dominant political party is replaced by another.
+	- Party Dealignment 
+	- A trend where voters disengage from political parties and begin to identify as independents.
+	- Swing Voters 
+	- Voters who are not properly aligned with a single political party and can be persuaded to vote for either major party.
+	- Ticket Splitting 
+	- The practice of voting for candidates from different political parties on the same ballot.
+	- Divided Government
+	- A situation where different political parties control different branches of government.
+- Log #3hvb
+	- A. 
+		- Republicans want to have free energy market, whereas the Democrats want a restricted green based energy market.
+		- Republicans want to cut regulation (to support bigger corporations) and the Democrats want to increase regulations (to support small businesses)
+		- Republicans want to stop wasted spending, Democrats want to use Gov’t spending to support the nation.
+		- Democrats REALLY want to develop american infrastructures.
+		- Both, Republicans and Democrats, want to have more jobs in the market.
+	- B.
+		- Green Party
+		    - Liveable wages, and a worker safety net
+			- Less fossil fuels, greener energy
+			- Less military spending
+		- Libertatian Party
+			- Right to bear arms, Immoral for Gov’t to take away guns
+			- Universal equal rights, no matter sex, race, romantic prefer , ext.    
+			- Peace not war
+		- Reform Party
+			- All Gov’t should hold themselves to an ethical standard
+			- Hold american political leaders responsible for economic stability
+			- Barriers between a patient and a doctor should be minimized 
+
+- Log #4
+	- 1A -> 1B
+		- 1A is for abortion and 1B is against abortion, making them opposing groups.
+	- 2A -> 2B
+		- 2A is for the development of civil liberties for black people and 2B is for the devleopment and education for mexicans, they are similar and would support each other probably
+	- 3A -> 3B
+		- 3A is to support children and allow them to have a healthy start to their life and have a safe childhood, 3B is to support retired peoples and make sure they have a comfortable retirement.
+	- 4A -> 4B
+		- 4A is against drunk driving and wants to prevent and minimize any alcohol and drug use, 4B is for the reform of marijuana laws and wants ti make marijuana legal.
+	- 5A -> 5B
+		- 5A is to support and promote ethical treatment of animals and make sure animals have fair rights so they are not used in experiments. And 5B focuses on fair right for workers and so that even workers have fair and liveable workplaces and working conditions.
+	- 6A -> 6B
+		- 6A is to stop the defamation of jewish people and to support and get fair treatment of jewish people, 6B is to protect christian rights and to promote christian ideals into government.
+	- 7A -> 7B
+		- 7A supports human rights for gay and lesbian and LGBTQ peoples so they can be treated and represented fairly and have fair representation in government. And 7B is for fair treatment of consumers so that they are not required to buy items that are greatly overpriced or unhealthy. 
+	- 8A -> 8B
+		- 8A wants to promote a healthy earth and encourage not touching the earths ecosystem, whereas 8B wants to promote and encourage active female voters and keep them in the know on current policy. 
+	- 9A -> 9B
+	    - 9A is a group who wants to reduce gun access to prevent gun violence, 9B is a group that wants to keep gun access by any means possible and will promote and vote for anyone who agrees.
+	- 10A -> 10B
+		- 10A is a group that wants to prevent all tax increases as a matter of principle, and 10B wants to wants to eliminate cancer as a health problem by any means nessicary 
+- Log #5
+		- ![](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeHPpqnafFXYlh-7M2hQAj7Z0AMNTv6ZyNIUJpyl_WUlcSS-wEkbSXahResG4PtLUzzFTzVEpG3SbTZeA-7-OVdPfsTt5lrN8IhlOE5HOu7zhp42DBCgAm4tmL-nWs47zEZpvng?key=Pf895FV6SR9tGp3Z9zaJPErR)
+    
